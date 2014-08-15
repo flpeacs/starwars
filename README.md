@@ -17,4 +17,6 @@ Sem Spoilers!
 
 ## Episodio 05: O Imperio Contra-Ataca
 
+Luke torna-se Jedi.
+
 ## Episodio 06: O Retorno do Jedi
