@@ -11,6 +11,8 @@ Agora o Anakin eh um aprendiz de Jedi.
 
 ## Episodio 03: A revolta dos Sith
 
+Sem Spoilers!
+
 ## Episodio 04: Uma nova Esperanca
 
 ## Episodio 05: O Imperio Contra-Ataca
