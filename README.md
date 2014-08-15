@@ -2,6 +2,8 @@
 
 ## Episodio 01: A ameaca fantasma
 
+Eh onde conhecemos o personagem Anakin.
+
 ## Episodio 02: O ataque dos clones
 
 ## Episodio 03: A revolta dos Sith
